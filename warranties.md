@@ -7,7 +7,7 @@
 
 
 ## Interior
-1. Trim boards underneath the washer are falling off.
+1. Trim boards underneath the dishwasher are falling off.
 2. Trim boards in many places are cut weird... @Elyssa fix this. 
 3. Trim baords have paint on them in marked places. 
 4. 
