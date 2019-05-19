@@ -10,4 +10,5 @@
 1. Trim boards underneath the dishwasher are falling off.
 2. Baseboard trim underneath cabinets are not cut to fit each other. In Master bathroom and kitchen. 
 3. Trim boards in both bathrooms have wall paint on them. 
-4. 
+4. Paint chips in door hinge in the door to the Master bathroom coming from the Bedroom.
+5. Master bathroom shower's sealant is broken. 
