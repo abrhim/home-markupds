@@ -8,6 +8,6 @@
 
 ## Interior
 1. Trim boards underneath the dishwasher are falling off.
-2. Trim boards in many places are cut weird... @Elyssa fix this. 
-3. Trim baords have paint on them in marked places. 
+2. Baseboard trim underneath cabinets are not cut to fit each other. In Master bathroom and kitchen. 
+3. Trim boards in both bathrooms have wall paint on them. 
 4. 
